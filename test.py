@@ -1,1 +1,1 @@
-Typing update
+"Typing update"
